@@ -1,0 +1,2 @@
+# general
+About itRus community
